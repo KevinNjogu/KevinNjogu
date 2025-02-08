@@ -16,7 +16,7 @@
 
 - 📫 How to reach me **kevinkarongo273@gmail.com**
 
-- ⚡ Fun fact **I know Iam Funny 🤣🤣**
+- ⚡ Fun fact **Manchester United**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
